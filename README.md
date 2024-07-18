@@ -1,6 +1,6 @@
 # XSUS机场官网地址
 
-最新地址：[xsus.wiki](https://xsus.date/#/register?code=hpZSIRM6)
+最新地址：[xsus.wiki](https://xsus.work/#/register?code=hpZSIRM6)
 
 ## XSUS机场介绍
 
